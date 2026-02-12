@@ -1,1 +1,1 @@
-Team lead: MWANGILWA CHISHIBA
+Team lead: Mwangilwa
